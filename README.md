@@ -1,0 +1,1 @@
+# Lab1_17variant_Trush_1RPZ19
